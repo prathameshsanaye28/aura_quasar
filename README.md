@@ -2,7 +2,7 @@
 
 ## 📱 Download APK
 
-[Download Aura APK](https://drive.google.com/file/d/1_dV3QZNlQyoF9vu_IXu9snXjf02KF5S1/view?usp=share_link)
+[Download Aura APK]([https://drive.google.com/file/d/1_dV3QZNlQyoF9vu_IXu9snXjf02KF5S1/view?usp=share_link](https://drive.google.com/file/d/1cWAJCbGZkpQCG-nIL0bSqtWnENFmR5PB/view?usp=sharing))
 
 ## 📱 Aura Demo Video
 
